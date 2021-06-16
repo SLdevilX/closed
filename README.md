@@ -2,6 +2,11 @@
 ## Fuc# for some duplicate 
 ## Also Fu## iccy bitc$
 
-# who call asena it is original but A**na Duplicate 🤣 it is duplicte Dude not a original. rip Duplicte🤣🤣🤣🤣🤣
+# who call asena is original no problem, ofcourse it is the original one from geate man yusuf usta 💪🏻
 
-*** little cow calling other bots fake {duplicate 🤣🤣🤣)
+# but somme little bit#@ call A**na Duplicate  is original bla bla bala i am a devaloper my as# coded by MO@#$ 
+
+# 🤣 it is duplicte Dude not a original. rip Duplicte🤣🤣🤣🤣🤣
+
+*** little cow calling other bots fake {but it own one is duplicate 🤣🤣🤣)
+
